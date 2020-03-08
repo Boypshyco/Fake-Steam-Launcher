@@ -21,6 +21,6 @@ Contact:
 - DrWeabo (www.youtube.com/DrWeabo)
 
 Thanks to:
-- Thanks to All Member CrackingParadox [ https://crackingparadox.com ]
+- Thanks to All Member CrackingParadox (https://crackingparadox.com)
 
 All Rights Reserved 2018-2019 DrWeabo Inc.
