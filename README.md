@@ -23,4 +23,4 @@ Contact:
 Thanks to:
 - Thanks to All Member CrackingParadox (https://crackingparadox.com)
 
-All Rights Reserved 2018-2019 DrWeabo Inc.
+© 2020 Copyright: DrWeabo Inc.
