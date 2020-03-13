@@ -23,7 +23,4 @@ Follow Us:
 Join in my forums:
 - Forums (https://forum.drweabo.com)
 
-Thanks to:
-- Thanks to All Member CrackingParadox (https://crackingparadox.com)
-
 © 2020 Copyright: DrWeabo Inc.
