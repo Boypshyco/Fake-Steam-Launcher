@@ -17,7 +17,7 @@ Example Image:
 
 ![image](https://cdn.discordapp.com/attachments/562361254535102494/562741971534348314/unknown.png)
 
-Contact:
+Follow Us:
 - DrWeabo (www.youtube.com/DrWeabo)
 
 Join in my forums:
