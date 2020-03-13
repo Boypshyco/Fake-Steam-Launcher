@@ -21,7 +21,7 @@ Contact:
 - DrWeabo (www.youtube.com/DrWeabo)
 
 Join in my forums:
-- Forums (https://forums.drweabo.com)
+- Forums (https://forum.drweabo.com)
 
 Thanks to:
 - Thanks to All Member CrackingParadox (https://crackingparadox.com)
