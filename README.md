@@ -20,7 +20,7 @@ Example Image:
 Follow Us:
 - DrWeabo (www.youtube.com/DrWeabo)
 
-Join in my forums:
+Join in my litte forums:
 - Forums (https://forum.drweabo.com)
 
 © 2020 Copyright: DrWeabo Inc.
